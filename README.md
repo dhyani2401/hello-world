@@ -1,1 +1,2 @@
 # hello-world
+# As a web designer, I aspire to develop digital items that creatively merge originality and usefulness. I envision websites that are pleasing to the eye as well as the ones prioritizing user experience and accessibility. Learning new things in my area about design and modern technology helps me enhance my skills and find innovative ways to challenge the boundaries of the possible in the digital world. I hope that my creative and user-oriented solutions can make a difference to both clients and users and help further the field of web design.
